@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AlexHdzL
+- 👀 I’m interested in Product Management, Innovation, UX/UI, Data Analysis.
+- 🌱 I’m currently learning UX/UI
+- 💞️ I’m looking to collaborate on Product Management projects.
+- 📫 How to reach me
+-   LinkedIn: https://www.linkedin.com/in/alejandrohdzl/
